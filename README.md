@@ -1,2 +1,2 @@
 # PROGRAMMING--Exercises-
-For you ma'am lysa🥰
+For you ma'am lysa
